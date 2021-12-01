@@ -1,0 +1,2 @@
+# Fero-crypto
+Fero Crypto is a company based on preparing liquidity and providing partners with us with the best financial technologies to reach their annual targets through carefully selected and prepared packages to access the most efficient and less risky financial financing and in confidential and secure ways in accordance with the laws and legislations regulating these packages and financial solutions for partners
